@@ -10,3 +10,4 @@ jai sri ram
 jai jai rama
 jai hanuman
 jai jai hanuman
+now bhajans
