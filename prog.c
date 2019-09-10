@@ -6,3 +6,5 @@ hi
 hi
 namaste
 good morning
+jai sri ram
+jai jai rama
